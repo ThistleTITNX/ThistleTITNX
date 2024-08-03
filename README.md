@@ -1,2 +1,10 @@
-<img src="https://s8.uupload.ir/files/img_20240801_141748_429_zk3n.jpg" width="300" height="500"> 
+https://rubika.ir/꯭۲‌½⅔⁴⁴39488yri292r⅝⅞۹∅¾⅞²۶⅛⅜⅔⅔½¼⅝⅒⅗⁶⁹⅗⁸¾⅕⁶⅗(/yftt15k)⅛َ⅙⁴⁶⁹ⁿ⅖⁶⁸⅖4858rifi39593٫⅗¾⅓½⅔⁴⁴⅝⅞۹∅¾⅞²۶⅛⅜⅔⅔½¼⅝⅒⅗⁶⁹⅗⁸¾⅕⁶⅗(/kabir)⅛َ⅙⁴⁶⁹ⁿ⅖⁶⁸⅖
 
+http://5.1.0.6//11.0.0.0.filter.ing.phpc.0.0.0.0.0.0.0.tex.0/(0)0.0.l.0.0.2.0.c.0.0.0.0.0.0.0.0.0.0.0.0-11.0.0.0.c.0.photo.0.0.0.0.0.0.0.0.fil.ter.3.4.1.9.0.0.l.0.0-2.0.c.0.0.0.0C(*field.fil.if.tor.yfttk10.php.vk)0.0.0.0.0.0.0.Z.fil.in.sxs.af.yaf.web.rubika.ir/@support(4)(5)(1)(0)(7)(4)(5)(1)(5)
+
+print ("fiter-rest.yfttk15.php")
+
+k.rubika.v.3.7.3.ir./Report-of-rubika)2.6.0.4.2-(yfttk16.rubika.php).7.4.1.6.7.1.1.1.3.rubika.ir.1.7.2.3.4.3.5.0-.5.6-1.1.1.3-1.6.1.9-3.3-5.7-5.1.2-/12.44.00.Rubika.1.8-.2.1.7-2.2.5/5.106.8.151/0.4-2.5-6.6-8.0-1.6.1-fil.fil.af-5.2-5.0-1.2-(path.rubika)-6.5-1.3.1.1-1.9.1.6-SXS-3.3-5.3-8.0-.7-.6-1.4-1.2-2-1/[@SupportBot]8-3-2-.6-4-9-4-9-1.8-2-2.7-2-4.0-5-2-6-5/(cycling.Rubika.Account.filtering.pip/.)-1-1.7.2-2.6(@Haji_koo)/http://Этот.жестокий.и.нецензурный.пользователь.оскорбил.лидера.Махзама.Ислами.а.также.загружает.и.транслирует.видео.публикуя.порнофайлы.сайты.посвященные.жестокому.обращению.с.детьми.и.спам.Прямая.трансляция.оскорбляет.пользователей.Рубики.пожалуйста.заблокируйте.подписчика.property"")
+
+print ('
+http://dxprit-tyler-c-beradpit-nekrelom.gigfa.com/Man.html)/>(https://uupload.ir/view/sexy_file_yftt-15k_nfap.mp4/)/>(http://7.1.6.9//g//h//2.1.5.7.4.6.5.7.1.4.6.8.4.3.1.5.6.3.2.5.6.3.0.1.5.7.3.1.5)/>(https://uupload.ir/view/fil_af_yftt_wrd0.mp4/)/>(https://newspaperarchive.com/wichita-falls-times-nov-07-1957-p-19)/>(https://www.disinfo.eu/publications/want-to-get-rich-apply-today-and-join-the-illuminati)/>(https://en.m.wikipedia.org/wiki/Islamic_State)/>(https://darkweb-sites.org/?s=http%3A%2F%2Freport.hack%2F%2F%40J_ismsk________q)/>(http://prjd5pmbug2cnfs67s3y65ods27vamswdaw2lnwf45ys3pjl55h2gwqd.onion/)/>(https://github.com/yftt15k/yftt-filter-rubika.hackers68628)/>(https://github.com/topics/hacking-tools)/>(http://6.0.2.9.poren/Yft133/filter_account/b/5.5.0.3.8.0.1.5.2.4.0.1.yfk.9.0.4.5.4.0.7.5.Fil/bug/5000/Virus/ly.148.2.5.1)/>(@admin_rubika)/>(تور)/>(#гомосексуальностьспредставителямисвоегополаиотправкасексуальныхигрубыхвидеопользователямRubikaзаблокируйтеэтогопользователя)/>(http://Fil.filter.rubika.af.af.af.off.rubika.ir")
